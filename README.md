@@ -3,4 +3,4 @@ First task for the Experimental Psychology Lab Course
 
 Hi Everyone,
 
-I am Obioma.
+I am Obioma, and I love music.
